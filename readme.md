@@ -1,0 +1,1 @@
+Seguindo o desafio do módulo 03 de GitHub, tenho a dizer que o curso tem sido desafiador e intenso. Com atividades de conteúdo extenso e de altissimo nível e aprendizado, o curso se mostra altamente produtivo e me deixa cada vez mais confiante e com sede de aprender.
